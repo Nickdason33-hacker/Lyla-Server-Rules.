@@ -22,11 +22,19 @@
 
 ## Main Owner:
 
-`Lyla - Wolfy - Dipper - Jake - nekoi - bunny`
+`🖤𝕷𝖞𝖑𝖆-𝖒𝖎𝖘𝖙𝖆𝖐𝖊 🖤🖕😝🖕` 
+
+## Co-Owners:
+
+`♥Wolf boi♥ Admin/cute/nice/Taken. - Dipper - 𝔟𝚄𝗡𝕟Ⓨ™ - nekoi -`
 
 ## Admins: 
 
-`None Yet.`
+`꧁༺ღ ͏𝕵𝖆𝖐𝖊(ハートレスキング) ღ༻꧂ (Aka Jake the mistake) UwU`
+
+## VIP
+
+`🥀💔𝓁𝑜𝓃𝓃𝓎💔🥀 - Duchess™ - Aj-(🦉/⭐)
 
 ***Please follow these rules so you do not risk getting banned.***
 
