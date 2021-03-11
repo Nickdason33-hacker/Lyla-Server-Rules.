@@ -22,11 +22,7 @@
 
 **Main Owner:**
 
-`Lyla
-
-Wolfy - Dipper
-
-Jake`
+`Lyla - Wolfy - Dipper - Jake`
 
 ***Please follow these rules so you do not risk getting banned.***
 
