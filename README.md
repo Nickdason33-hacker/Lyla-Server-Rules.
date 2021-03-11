@@ -20,9 +20,9 @@
 14. No advertisement.
 15. No discord servers or links if the owner doesn't allow it.
 
-**Main Owner:**
+## Main Owner:
 
-`Lyla - Wolfy - Dipper - Jake`
+`Lyla - Wolfy - Dipper - Jake - nekoi`
 
 ***Please follow these rules so you do not risk getting banned.***
 
