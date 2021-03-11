@@ -39,7 +39,7 @@
 
 ## VIP
 
-`🥀💔𝓁𝑜𝓃𝓃𝓎💔🥀 - Duchess™ - Aj-(🦉/⭐)
+`🥀💔𝓁𝑜𝓃𝓃𝓎💔🥀 - Duchess™ - Aj-(🦉/⭐)`
 
 ***Please follow these rules so you do not risk getting banned.***
 
