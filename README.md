@@ -22,7 +22,11 @@
 
 ## Main Owner:
 
-`Lyla - Wolfy - Dipper - Jake - nekoi`
+`Lyla - Wolfy - Dipper - Jake - nekoi - bunny`
+
+## Admins: 
+
+`None Yet.`
 
 ***Please follow these rules so you do not risk getting banned.***
 
