@@ -1,6 +1,7 @@
 # Lyla-Server-Rules.
 **Displays rules for Lylas room.**
-// Rules. \\
+
+## Rules. 
 
 `Please note this may get you banned if you so not follow the rules for her server.`
 1. No Trolling.
