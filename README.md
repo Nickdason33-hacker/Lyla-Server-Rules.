@@ -32,6 +32,11 @@
 
 `꧁༺ღ ͏𝕵𝖆𝖐𝖊(ハートレスキング) ღ༻꧂ (Aka Jake the mistake) UwU`
 
+## Ultra VIP:
+
+`Kiley-(AJ's Wife/bestfriend ❤️🤞)`
+
+
 ## VIP
 
 `🥀💔𝓁𝑜𝓃𝓃𝓎💔🥀 - Duchess™ - Aj-(🦉/⭐)
