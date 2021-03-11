@@ -34,7 +34,7 @@
 
 ## Ultra VIP:
 
-`Kiley-(AJ's Wife/bestfriend ❤️🤞)`
+`Kiley-(AJ's Wife/bestfriend ❤️🤞) - Kaneki/ghoul/taken/god/nickname:phoenix`
 
 
 ## VIP
