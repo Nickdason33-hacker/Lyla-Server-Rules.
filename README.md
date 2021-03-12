@@ -1,5 +1,10 @@
 # Lyla-Server-Rules.
-**Displays rules for Lylas room.**
+
+**The rules for Lylas Sever!**
+
+#
+
+**By: ♥Wolf boi♥ Admin/cute/nice/Taken. **
 
 ## Rules. 
 
