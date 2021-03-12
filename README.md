@@ -28,9 +28,21 @@
 
 `♥Wolf boi♥ Admin/cute/nice/Taken. - Dipper - 𝔟𝚄𝗡𝕟Ⓨ™ - nekoi -`
 
+## Head Admins:
+
+``♥Wolf boi♥ Admin/cute/nice/Taken.``
+
 ## Admins: 
 
 `꧁༺ღ ͏𝕵𝖆𝖐𝖊(ハートレスキング) ღ༻꧂ (Aka Jake the mistake) UwU`
+
+## Security:
+
+`ㅤㅤㅤㅤㅤㅤㅤㅤㅤ`
+
+## Wolfys Fun admin center:
+
+`✭★𝔸𝖑𝖊𝖝★✭`
 
 ## Ultra VIP:
 
@@ -42,5 +54,5 @@
 `🥀💔𝓁𝑜𝓃𝓃𝓎💔🥀 - Duchess™ - Aj-(🦉/⭐)`
 
 ***Please follow these rules so you do not risk getting banned.***
-
+#
 # Have a great day!^^
