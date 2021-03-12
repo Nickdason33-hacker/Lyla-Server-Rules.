@@ -31,7 +31,13 @@
 
 ## Co-Owners:
 
-`♥Wolf boi♥ Admin/cute/nice/Taken. - Dipper - 𝔟𝚄𝗡𝕟Ⓨ™ - nekoi -`
+`♥Wolf boi♥ Admin/cute/nice/Taken.`
+
+`Dipper`
+
+`𝔟𝚄𝗡𝕟Ⓨ™`
+
+`nekoi`
 
 ## Head Admins:
 
@@ -39,11 +45,13 @@
 
 ## Admins: 
 
-`꧁༺ღ ͏𝕵𝖆𝖐𝖊(ハートレスキング) ღ༻꧂ (Aka Jake the mistake) UwU`
+`꧁༺ღ ͏𝕵𝖆𝖐𝖊(ハートレスキング) ღ༻꧂`
 
 ## Security:
 
-`ㅤㅤㅤㅤㅤㅤㅤㅤㅤ`
+`Aj-(🦉/⭐)`
+
+`Koral`
 
 ## Wolfys Fun admin center:
 
@@ -51,13 +59,19 @@
 
 ## Ultra VIP:
 
-`Kiley-(AJ's Wife/bestfriend ❤️🤞) - Kaneki/ghoul/taken/god/nickname:phoenix. -`
+`Kiley-(AJ's Wife/bestfriend ❤️🤞)`
+
+`Kaneki/ghoul/taken/god/nickname:phoenix. `
 
 
 ## VIP
 
-`🥀💔𝓁𝑜𝓃𝓃𝓎💔🥀 - Duchess™ - Aj-(🦉/⭐)`
+`🥀💔𝓁𝑜𝓃𝓃𝓎💔🥀`
 
+`Duchess™`
+
+#
 ***Please follow these rules so you do not risk getting banned.***
 #
+
 # Have a great day!^^
