@@ -75,3 +75,8 @@
 #
 
 # Have a great day!^^
+
+
+
+## Banned users from the room:
+`Aeiou - Perm ban.`
